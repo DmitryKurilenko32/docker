@@ -1,0 +1,1 @@
+![Снимок экрана 2024-06-01 012713.png](..%2F..%2F..%2FPictures%2FScreenshots%2F%D1%ED%E8%EC%EE%EA%20%FD%EA%F0%E0%ED%E0%202024-06-01%20012713.png)
